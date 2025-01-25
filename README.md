@@ -1,5 +1,5 @@
 # 💫 About Me:
-Creating small projects in MTA framework.
+Working on projects, grindig, an average student.
 
 
 ## 🌐 Socials:
